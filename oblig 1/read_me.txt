@@ -1,2 +1,0 @@
-i did not feel comfertable making the website about myself so i made it about a fictisous person
-the picture is taken from https://thispersondoesnotexist.com/ and is an ai generated image and not an actual person
